@@ -1,0 +1,1 @@
+# yeni-genclik-buca
